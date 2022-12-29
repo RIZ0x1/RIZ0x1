@@ -6,4 +6,6 @@
 
 <b>Telegram:</b> [@riz1_k](https://t.me/riz1_k)
 <br>
-<b>E-Mail:</b> [riz1.kibiev@gmail.com](https://t.me/riz1_k)
+<b>E-Mail:</b> riz1.kibiev@gmail.com
+<br>
+<b>LinkedIn:</b> [Rizvan K.](www.linkedin.com/in/riz1k)
